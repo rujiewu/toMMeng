@@ -1,6 +1,6 @@
 # Forever Love to My Dear MMeng
 
-This is the first birthday present to my MMeng, and it describes a sweet love story about Stray Dog with Octopus.
+This is the first birthday present to my dear MMeng, and it describes a sweet love story about Stray Dog with Octopus.
 
 死生契阔  与子成说
 
