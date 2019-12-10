@@ -6,6 +6,6 @@ This is the first birthday present to my dear MMeng, and it describes a sweet lo
 
 执子之手  与子偕老
 
-[流浪狗 & 八爪鱼的爱情故事](https://rujiewu.github.io/toMMeng/iloveu.html) 
+[流浪狗和八爪鱼的爱情故事](https://rujiewu.github.io/toMMeng/iloveu.html) 
 
 <img src="img/1.jpg" />
