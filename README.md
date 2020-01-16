@@ -8,8 +8,10 @@ This is the first birthday present to my dear MMeng, and it describes a sweet lo
 
 [流浪狗和八爪鱼的爱情故事](https://rujiewu.github.io/toMMeng/iloveu.html)
 
-[这是一段甜美如童话般的爱情](https://www.bilibili.com/video/av81049350)
+[这是一段甜美如童话般的爱情](https://www.bilibili.com/video/av83668793)
 
 <img src="img/myDarling1.jpg"/>
 
 <img src="img/moon.jpg"/>
+
+<img src="img/forever love to my dear MMeng.gif"/>
